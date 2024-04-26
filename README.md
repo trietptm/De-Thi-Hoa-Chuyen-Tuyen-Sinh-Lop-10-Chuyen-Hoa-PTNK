@@ -1,2 +1,3 @@
 # De-Thi-Hoa-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Hoa-PTNK
-Đề Thi Hóa Chuyên Tuyển Sinh Lớp 10 Chuyên Hóa Trường Phổ Thông Năng Khiếu (PTNK), Đại Học Quốc Gia TP.HCM
+* Tuyển tập Đề Thi Hóa Chuyên Tuyển Sinh Lớp 10 Chuyên Hóa Trường Phổ Thông Năng Khiếu (PTNK), Đại Học Quốc Gia TP.HCM Triết giới thiệu đến các bạn học các lớp toán nâng cao, toán không chuyên PTNK cho các bạn học sinh lớp 7, 8 và lớp 9, tối 2-4-6, 3-5, sáng thứ 7 hàng tuần.
+* Liên hệ học thử: 0962797946 (FaceTime, Zalo,...), [Facebook](https://www.facebook.com/trietptm) gần ngã ba Hồ Văn Huê - Nguyễn Kiệm, Phú Nhuận: https://goo.gl/maps/CghSicAvrM6nnYJ8A hoặc đăng ký học lớp toán chuyên sáng chủ nhật với thầy Triết ở trung tâm [PTNK HUB](https://www.facebook.com/PTNKHUB) tại trường Phổ thông Năng khiếu cơ sở quận 5.
